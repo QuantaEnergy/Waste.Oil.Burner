@@ -1,0 +1,4 @@
+- [I Built a BIG Waste Oil Heater to Heat My Entire Shop](https://youtu.be/5MgGOr_47hU)
+- [Unfiltered 100% Waste Oil Vs Stock Diesel Heater](https://youtu.be/KQopA8n7quU)
+- [Diesel Heater testing filtered waste oil - 50/50 diesel oil mix - part 2](https://youtu.be/40hzE1RDbD4)
+- [](url)
