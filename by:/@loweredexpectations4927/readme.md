@@ -7,3 +7,4 @@ https://www.youtube.com/@loweredexpectations4927
 - [Blue Flame Waste Oil Burner - Explanation / Startup / Update. (better footage)](https://youtu.be/YzhRCZDbnOA)
 - [Free Heat Cost Me $2000 - Waste Oil Burner First House Test.](https://youtu.be/aTxKEmha08A)
 - ["Successfully" Burning Waste Engine Oil - In A Diesel Heater - What Does This Mean?](https://youtu.be/qfZ9k4FhKlw)
+- [Waste Oil Heater Update - Inspection - New Fuel System & Lines - Chit Chat](https://youtu.be/opV4pKRiyCM)

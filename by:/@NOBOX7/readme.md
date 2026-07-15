@@ -6,3 +6,4 @@ https://www.youtube.com/@NOBOX7
 - [Bullet Burner Universal Fuel burner waste oil or propane](https://youtu.be/UWc8OmNYStM)
 - [500 Kw Godzilla Casting burner burns any fuel or oil](https://youtu.be/59qedrcQe38)
 - [Aluminum melting furnace burner for Joel](https://youtu.be/vuxPDjiOciQ)
+- [Dual action air atomizer cast iron melting burner Clog free operation](https://youtu.be/l9kljEMXMwc)

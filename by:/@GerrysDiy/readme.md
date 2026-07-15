@@ -7,3 +7,4 @@ https://www.youtube.com/@GerrysDiy
 - [FANTASTIC Puppy Feeder Waste Oil Burner](https://youtu.be/9oTg7ToOXGU)
 - [Awesome Homemade Waste Oil Stove .. Free Heat .. Build 1](https://youtu.be/nEJA7GLj8ZY)
 - [Homemade 5 dollar Waste Oil Burner .. Fantastic Free Heat](https://youtu.be/ShTLaYKjzxw)
+- [Oil Burner Repair .. Explained!!](https://youtu.be/dqBC6369xRg)
