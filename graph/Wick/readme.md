@@ -1,0 +1,2 @@
+- [Coke Can Waste Motor Oil Lantern](https://youtu.be/Y2aG3ApqZ2Q)
+- [1680 The Magical Forever Wick - The Plant Pot Heater On Steroids](https://youtu.be/HX2taNrdQh8)
