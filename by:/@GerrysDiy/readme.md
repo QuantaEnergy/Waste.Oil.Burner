@@ -5,4 +5,5 @@ https://www.youtube.com/@GerrysDiy
 - [Free Heat .. Fantastic Tin can Waste oil Burner](https://youtu.be/hw3v2gN_sLk)
 - [Build a New and improved fantastic output Waste Oil Burner.](https://youtu.be/AiKcx7ghtHk)
 - [FANTASTIC Puppy Feeder Waste Oil Burner](https://youtu.be/9oTg7ToOXGU)
-
+- [Awesome Homemade Waste Oil Stove .. Free Heat .. Build 1](https://youtu.be/nEJA7GLj8ZY)
+- [Homemade 5 dollar Waste Oil Burner .. Fantastic Free Heat](https://youtu.be/ShTLaYKjzxw)
