@@ -1,0 +1,3 @@
+- [Smokeless Burn Barrel](https://youtu.be/07P-6gqYg2g)
+- [Solo Stove Hates Me For Showing You This!](https://youtu.be/kqF4-zG0W3o)
+- [$450 Smokeless Fire Pit for $20 🔥 (no weld DIY fire pit from a single barrel)](https://youtu.be/XqeV_Mu1s0o)
