@@ -1,0 +1,2 @@
+- https://www.google.com/search?q=waste+oil+heater+blue+flame
+- https://www.google.com/search?q=waste+oil+burner+blue+flame
