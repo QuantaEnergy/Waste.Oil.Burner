@@ -5,3 +5,4 @@ https://www.youtube.com/@NOBOX7
 - [Ewaste smelting burner comparison quadrupled yields](https://youtu.be/U_EheuHFbqY)
 - [Bullet Burner Universal Fuel burner waste oil or propane](https://youtu.be/UWc8OmNYStM)
 - [500 Kw Godzilla Casting burner burns any fuel or oil](https://youtu.be/59qedrcQe38)
+- [Aluminum melting furnace burner for Joel](https://youtu.be/vuxPDjiOciQ)
