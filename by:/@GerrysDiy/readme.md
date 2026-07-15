@@ -4,3 +4,5 @@ https://www.youtube.com/@GerrysDiy
 - [Waste Oil Burner .. Homemade Drip Feed .. Free Heat](https://youtu.be/Bf38HSxtSBw)
 - [Free Heat .. Fantastic Tin can Waste oil Burner](https://youtu.be/hw3v2gN_sLk)
 - [Build a New and improved fantastic output Waste Oil Burner.](https://youtu.be/AiKcx7ghtHk)
+- [FANTASTIC Puppy Feeder Waste Oil Burner](https://youtu.be/9oTg7ToOXGU)
+
